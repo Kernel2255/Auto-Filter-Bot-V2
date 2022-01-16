@@ -10,7 +10,7 @@ MY NAME IS MOHANLAL
 ❤️
 അപ്പോ എങ്ങനാ പൊളിക്കുവല്ലേ 
 
-
+©️Team Malayalam Movie Factory™️
 
 For more click <i>help</i></b>"""
 
